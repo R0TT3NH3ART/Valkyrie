@@ -18,3 +18,5 @@ Fandoms : Genshin Impact, Wuthering waves, Honkai star rail, Zenless Zone Zero, 
 
 Also feel free to INT with me on pony town! (literally need friends fr)! 
 
+
+I play on Europe servers in every hoyo game and also Wuthering waves! if you wanna friend me, just ask me in Pony town!
